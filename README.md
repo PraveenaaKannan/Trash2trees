@@ -93,10 +93,13 @@ Integration with Smart City initiatives
 
 Praveenaa K
 
-Rithanyaa R
+Pooja V
 
 Shrinithi V
 
 Preethi V
 
-Mentor: Ramya S (Assistant Professor, MKCE)
+Preethi K
+
+Sharukhan A
+
